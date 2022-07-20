@@ -6,11 +6,11 @@
 
 好康的照骗比枯燥乏味的文字更具有说服力↓
 
-![Example 0](nvzhuang/Screenshot_2022-05-28-16-51-05-904_com.miui.video.jpg)
+![Example 0](nvzhuang/Screenshot_2022-05-28-16-51-05-904_com.miui.video.jpeg)
 
-![Example 0](nvzhuang/Screenshot_2022-05-28-16-51-32-398_com.miui.video.jpg)
+![Example 0](nvzhuang/Screenshot_2022-05-28-16-51-32-398_com.miui.video.jpeg)
 
-![Example 0](nvzhuang/Screenshot_2022-05-28-16-52-30-992_com.miui.video.jpg)
+![Example 0](nvzhuang/Screenshot_2022-05-28-16-52-30-992_com.miui.video.jpeg)
 
 
 ## 友情链接
